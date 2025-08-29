@@ -31,4 +31,4 @@ im in a lot of fandoms, almost too many to list, but i will try! all caps = FAVS
 
 MADNESS COMBAT, HOLLOW KNIGHT, ULTRAKILL, UNDERTALE/DELTARUNE, FORSAKEN, THE POST TRAUMATIC MANIFESTO, pressure, grace, regretevator, lapfox/halley labs, the property of hate, rain world, little nightmares, inscryption, cult of the lamb, etc.
 
-my main kins rn areeee: noli (forsaken), doc/2bdamned (madness combat), v2 (ultrakill), painter (pressure)
+my main kins rn areeee: noli (forsaken), doc/2bdamned (madness combat)
