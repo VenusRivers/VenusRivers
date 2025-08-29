@@ -1,6 +1,6 @@
 ## jumps for joy
 
-<img width="450" height="43" alt="ball and chain" src="https://github.com/user-attachments/assets/20e69f6b-c5bb-4505-9a81-704d6bdf76a3" />
+
 
 
 hi hello, im venus, but teddy also works! i am 17 and i use he/him and & it/its pronouns, im a gay and trans man. i likely have autism/adhd (probably both), so please be patient! i also misread things a lot, so if i make a mistake in reading something u say, please kindly correct me
