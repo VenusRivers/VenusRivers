@@ -9,7 +9,7 @@ hi hello, im venus, but teddy also works! i am 17 and i use he/him and & it/its 
 
 INT!: same fandom, oomfs, doubles, pretty much any reason. i love talking to people!
 
-DNI: people under 15, proshippers, diehard vivziepop stans, country humans fans, roleplayers (unless i have the roleplaying status on), and basic DNI criteria
+DNI: people under 15, proshippers, diehard vivziepop stans, country humans fans, smg4 fans (mr puzzles ponys get shot on sight), roleplayers (unless i have the roleplaying status on), and basic DNI criteria
 
   please do not make sexual jokes to me! it makes me very uncomfortable and i dont find it funny. if you dont stop i will just hide you
   
