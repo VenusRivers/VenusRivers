@@ -11,9 +11,11 @@ INT!: same fandom, oomfs, doubles, pretty much any reason. i love talking to peo
 
 DNI: people under 15, proshippers, diehard vivziepop stans, country humans fans, roleplayers (unless i have the roleplaying status on), and basic DNI criteria
 
+  also, please do not make sexual jokes to me! it makes me very uncomfortable and i dont find it funny. if you dont stop i will just hide you
+  
   not rlly DNI material, but do not interact with me if you only want me/my pony to satisfy your fav ship/duo/whatever. i am a person! but if its a one off bit/joke its fine. i just am rlly uncomfortable roleplaying with strangers 
   
-  also, please do not make sexual jokes to me! it makes me very uncomfortable and i dont find it funny. if you dont stop i will just hide you
+
 
 ![heart monitor](https://github.com/user-attachments/assets/01ce628f-c241-4509-8a79-264a6f1e3d4a)
 
