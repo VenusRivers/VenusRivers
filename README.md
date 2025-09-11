@@ -24,7 +24,7 @@ inspo is fine! i love if a pony i make can help u make one of your own! but give
 
 feel free to ask me about how i do certain tricks/effects/etc on my ponies! i hate gatekeepers and i love the spread of information
 
-c + h is fine as long as u ask, im kinda uncomfy with strangers getting that close to me out of nowhere (unless i have c + h in my user, then u can without asking)
+ask for c + h pretty please. im kinda uncomfy with strangers getting that close to me out of nowhere (unless i have c + h in my user, then u can without asking)
 
 im usually hanging around outside the cafe unless im dragged away by friends. feel free to come up and talk to me, i dont bite!
 
