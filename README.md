@@ -7,11 +7,11 @@ hi hello, im venus, but teddy also works! i am 18 and i use he/him and & it/its 
 
 ![chain and skulls](https://github.com/user-attachments/assets/c3f48459-144c-4b37-b1ee-86e94e104ed3)
 
-INT!: same fandom, oomfs, doubles, pretty much any reason. i love talking to people!
+INT!: same fandom, oomfs, doubles, pretty much any reason. i love talking to people! i can be awkward though, please forgive me ^^;
 
 DNI: people under 15, proshippers, diehard vivziepop stans, country humans fans, smg4 fans (mr puzzles ponys get shot on sight), roleplayers (unless i have the roleplaying status on), and basic DNI criteria
 
-  please do not make sexual jokes to me! it makes me very uncomfortable and i dont find it funny. if you dont stop i will just hide you
+  please do not make sexual jokes to or around me! it makes me very uncomfortable and i dont find it funny. if you dont stop i will just hide you
   
   also not rlly DNI material, but do not interact with me if you only want me/my pony to satisfy your fav ship/duo/whatever. i am a person! but if its a one off bit/joke its fine. i just am rlly uncomfortable roleplaying with strangers 
   
