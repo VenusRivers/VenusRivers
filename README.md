@@ -12,6 +12,8 @@ INT!: same fandom, oomfs, doubles, pretty much any reason. i love talking to peo
 DNI: people under 15, proshippers, diehard vivziepop stans, country humans fans, smg4 fans (mr puzzles ponys get shot on sight), roleplayers (unless i have the roleplaying status on), and basic DNI criteria
 
   please do not make sexual jokes to or around me! it makes me very uncomfortable and i dont find it funny. if you dont stop i will just hide you
+
+  i reclaim the F and T slurs, often in jokes around other queer people. if that upsets you, please tell me and i wont say them around you
   
   also not rlly DNI material, but do not interact with me if you only want me/my pony to satisfy your fav ship/duo/whatever. i am a person! but if its a one off bit/joke its fine. i just am rlly uncomfortable roleplaying with strangers 
   
