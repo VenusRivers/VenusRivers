@@ -38,3 +38,7 @@ im in a lot of fandoms, almost too many to list, but i will try! all caps = FAVS
 MADNESS COMBAT, HOLLOW KNIGHT, ULTRAKILL, UNDERTALE/DELTARUNE, FORSAKEN, THE POST TRAUMATIC MANIFESTO, HALLEY LABS/LAPFOX TRAX, pressure, grace, regretevator, the property of hate, rain world, little nightmares, inscryption, cult of the lamb, the life series/hermitcraft, etc.
 
 my main kins rn areeee: noli (forsaken), doc/2bdamned (madness combat), the hollow knight/the pure vessel (hollow knight)
+
+<img width="576" height="726" alt="cuddly_tew_bee" src="https://github.com/user-attachments/assets/dc895e4d-e1b8-4701-b51c-d397e0fac389" />
+art by me :3 
+
