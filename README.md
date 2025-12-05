@@ -7,8 +7,6 @@ hi hello, im venus, but teddy also works! i am 18 and i use he/him and & it/its 
 
 ![chain and skulls](https://github.com/user-attachments/assets/c3f48459-144c-4b37-b1ee-86e94e104ed3)
 
-INT!: same fandom, oomfs, doubles, pretty much any reason. i love talking to people! i can be awkward though, please forgive me ^^;
-
 DNI: people under 15, proshippers, diehard vivziepop stans, country humans fans, smg4 fans (mr puzzles ponys get shot on sight), alfreds playhouse fans, roleplayers (unless i have the roleplaying status on), and basic DNI criteria
 
   please do not make sexual jokes to or around me! it makes me very uncomfortable and i dont find it funny. if you dont stop i will just hide you
@@ -28,8 +26,7 @@ feel free to ask me about how i do certain tricks/effects/etc on my ponies! i ha
 
 ask for c + h pretty please. im kinda uncomfy with strangers getting that close to me out of nowhere (unless i have c + h in my user, then u can without asking)
 
-im usually hanging around outside the cafe unless im dragged away by friends. feel free to come up and talk to me, i dont bite!
-
+im usually hanging around outside the cafe unless im dragged away by friends. if im alone, im usually people watching. im rather awkward so give me some grace, but ill be chill if youre chill
 ![warning pop up](https://github.com/user-attachments/assets/55a0e02e-12d3-46a4-a1a0-b9c66f50efc1)
 
 
