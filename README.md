@@ -5,17 +5,7 @@
 
 hi hello, im venus, but teddy also works! i am 18 and i use he/him and & it/its pronouns, im a gay and trans man. i likely have autism/adhd (probably both), so please be patient! i also misread things a lot, so if i make a mistake in reading something u say, please kindly correct me
 
-![chain and skulls](https://github.com/user-attachments/assets/c3f48459-144c-4b37-b1ee-86e94e104ed3)
-
 i dont think DNIs work but i will block you if i dont like you. dont be an asshole!
-
-  please do not make sexual jokes to or around me! it makes me very uncomfortable and i dont find it funny. if you dont stop i will just hide you
-
-  i reclaim the F and T slurs, often in jokes around other queer people. if that upsets you, please tell me and i wont say them around you
-  
-  also not rlly DNI material, but do not interact with me if you only want me/my pony to satisfy your fav ship/duo/whatever. i am a person! but if its a one off bit/joke its fine. i just am rlly uncomfortable roleplaying with strangers 
-  
-
 
 ![heart monitor](https://github.com/user-attachments/assets/01ce628f-c241-4509-8a79-264a6f1e3d4a)
 
