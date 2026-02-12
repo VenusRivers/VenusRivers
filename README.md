@@ -7,7 +7,7 @@ hi hello, im venus, but teddy also works! i am 18 and i use he/him and & it/its 
 
 ![chain and skulls](https://github.com/user-attachments/assets/c3f48459-144c-4b37-b1ee-86e94e104ed3)
 
-DNI: people under 15, proshippers, diehard vivziepop stans, country humans fans, smg4 fans (mr puzzles ponys get shot on sight), alfreds playhouse fans, roleplayers (unless i have the roleplaying status on), and basic DNI criteria
+i dont think DNIs work but i will block you if i dont like you. dont be an asshole!
 
   please do not make sexual jokes to or around me! it makes me very uncomfortable and i dont find it funny. if you dont stop i will just hide you
 
