@@ -7,6 +7,8 @@ hi hello, im venus, but teddy also works! i am 18 and i use he/him and & it/its 
 
 i dont think DNIs work but i will block you if i dont like you. dont be an asshole!
 
+i selfship from time to time :3 im fine with sharing!!! my yumes are the sinner and mime from grace (but dont be weird about it please!!)
+
 ![heart monitor](https://github.com/user-attachments/assets/01ce628f-c241-4509-8a79-264a6f1e3d4a)
 
 
