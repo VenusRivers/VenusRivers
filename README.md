@@ -12,11 +12,9 @@ i selfship from time to time :3 im fine with sharing!!! my yumes are the sinner 
 ![heart monitor](https://github.com/user-attachments/assets/01ce628f-c241-4509-8a79-264a6f1e3d4a)
 
 
-inspo is fine! i love if a pony i make can help u make one of your own! but give it your own creative spin, get silly with it. please do not copy my ponies
+inspo is fine! i love if a pony i make can help u make one of your own! but give it your own creative spin, get silly with it. please do not copy my ponies. feel free to ask me about how i do certain tricks/effects/etc on my ponies! i hate gatekeepers and i love the spread of information
 
-feel free to ask me about how i do certain tricks/effects/etc on my ponies! i hate gatekeepers and i love the spread of information
-
-ask for c + h pretty please. im kinda uncomfy with strangers getting that close to me out of nowhere (unless i have c + h in my user, then u can without asking)
+ask for c + h unless its in my user or im already in a cuddle pile
 
 im usually hanging around outside the cafe unless im dragged away by friends. if im alone, im usually people watching. im rather awkward so give me some grace, but ill be chill if youre chill
 
