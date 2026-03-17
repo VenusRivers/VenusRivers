@@ -28,6 +28,6 @@ MADNESS COMBAT, HOLLOW KNIGHT, GRACE ROBLOX, ULTRAKILL, UNDERTALE/DELTARUNE, THE
 
 my main kins rn areeee: doc/2bdamned (madness combat), the hollow knight/the pure vessel (hollow knight)
 
-![alt text](johnling.png)
+![john grace running](johnling.png)
 art by me :3 
 
