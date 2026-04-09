@@ -7,7 +7,7 @@ hi hello, im venus, but teddy also works! i am 18 and i use he/him and & it/its 
 
 i dont think DNIs work but i will block you if i dont like you. dont be an asshole!
 
-i selfship from time to time :3 im fine with sharing!!! my yumes are the sinner and mime from grace (but dont be weird about it please!!)
+i selfship from time to time :3 im fine with sharing!!! 
 
 ![heart monitor](https://github.com/user-attachments/assets/01ce628f-c241-4509-8a79-264a6f1e3d4a)
 
@@ -24,7 +24,7 @@ im usually hanging around outside the cafe unless im dragged away by friends. if
 
 im in a lot of fandoms, almost too many to list, but i will try! all caps = FAVS
 
-MADNESS COMBAT, HOLLOW KNIGHT, GRACE ROBLOX, ULTRAKILL, UNDERTALE/DELTARUNE, THE POST TRAUMATIC MANIFESTO, HALLEY LABS/LAPFOX TRAX, pressure, regretevator, the property of hate, rain world, little nightmares, inscryption, cult of the lamb, the life series/hermitcraft, etc.
+MADNESS COMBAT, HOLLOW KNIGHT, ULTRAKILL, UNDERTALE/DELTARUNE, THE POST TRAUMATIC MANIFESTO, HALLEY LABS/LAPFOX TRAX, regretevator, the property of hate, rain world, little nightmares, inscryption, cult of the lamb, the life series/hermitcraft, etc.
 
 my main kins rn areeee: doc/2bdamned (madness combat), the hollow knight/the pure vessel (hollow knight)
 
