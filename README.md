@@ -27,7 +27,3 @@ im in a lot of fandoms, almost too many to list, but i will try! all caps = FAVS
 MADNESS COMBAT, HOLLOW KNIGHT, ULTRAKILL, UNDERTALE/DELTARUNE, THE POST TRAUMATIC MANIFESTO, HALLEY LABS/LAPFOX TRAX, regretevator, the property of hate, rain world, little nightmares, inscryption, cult of the lamb, the life series/hermitcraft, etc.
 
 my main kins rn areeee: doc/2bdamned (madness combat), the hollow knight/the pure vessel (hollow knight)
-
-![john grace running](johnling.png)
-art by me :3 
-
